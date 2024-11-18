@@ -1,2 +1,2 @@
 # nabicreative.co
-A website for nabi creative llc. 
+nabi creative llc is an arts/media business with the purpose of inspiring, uplifting, and empowering.
